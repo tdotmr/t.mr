@@ -1,2 +1,1 @@
-# t.mr
-https://t.mr
+# This domain is for sale. contact me:  sales@t.mr
